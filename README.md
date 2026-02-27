@@ -1,0 +1,1 @@
+# Haruy_atualizado1_mobile
